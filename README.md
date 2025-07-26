@@ -1,1 +1,1 @@
-# aqtar-privacy-policy
+# wayn-privacy-policy
